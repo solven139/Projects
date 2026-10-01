@@ -1,0 +1,1 @@
+[Conditional Edges in Trend-Filtered Mean-Reversion A Six-Condition Redesign.pdf](https://github.com/user-attachments/files/32887306/Conditional.Edges.in.Trend-Filtered.Mean-Reversion.A.Six-Condition.Redesign.pdf)
